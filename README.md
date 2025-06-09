@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+developer in progress\
+Thanks for your support! 😉
+
+working on personal projects 🌱
